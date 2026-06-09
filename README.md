@@ -8,7 +8,7 @@
 
 📞 [+7 700 137 66 45](https://wa.me/message/G4UXL4QB6FQ6A1)
 
-[CV](Danil_Kormilin_C++_CV_2026.pdf) · [LinkedIn](https://www.linkedin.com/in/danil-kormilin-developer) · [Codeforces](https://codeforces.com/profile/dan.kormilin)
+[CV](Danil_Kormilin_C++_2026.pdf) · [LinkedIn](https://www.linkedin.com/in/danil-kormilin-developer) · [Codeforces](https://codeforces.com/profile/dan.kormilin)
 
 ---
 
